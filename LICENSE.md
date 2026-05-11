@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Photoshop for macOS with Adobe Photoshop for macOS new Automation: real-time preview & collaboration, the #1 automation. Includes real-time preview and collaboration
 
 
 
